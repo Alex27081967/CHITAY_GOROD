@@ -1,1 +1,0 @@
-# CHITAY_GOROD
